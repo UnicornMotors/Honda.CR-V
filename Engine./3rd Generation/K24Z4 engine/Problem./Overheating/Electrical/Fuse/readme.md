@@ -9,3 +9,6 @@ https://www.justanswer.com/honda/lo9ub-honda-crv-3rd-gen-fan-just-stopped.html
 
 # 3rd Gen
 - [Honda CR-V (2007-2011) Fuse Box Diagrams](https://youtu.be/PvYcTDWk3cY)
+
+# Relation:
+- [Honda Radiator/Cooling Fan Not Working Honda Element](https://youtu.be/vnRTy_0kyC8)
