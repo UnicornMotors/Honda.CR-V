@@ -6,6 +6,7 @@ Search:
 https://www.reddit.com/r/crv/comments/1dz6m8q/serpentine_belt_diagram/
 
 # Diagram:
+- [2006-2012 Honda CR V Serpentine Belt Diagram #mechanic #diy #cartok #honda #carmaintenance #cars](https://www.youtube.com/shorts/pnWmmt1LT-Y)
 
 ## 2002
 - https://www.crvownersclub.com/threads/serpentine-belt-replacement-in-2nd-gen-neither-expensive-or-difficult.21474/
