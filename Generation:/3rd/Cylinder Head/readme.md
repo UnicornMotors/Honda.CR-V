@@ -1,0 +1,3 @@
+- [Honda K24 Z3/Z7 Cylinder Head Removal](https://youtu.be/MMT17X90MnA)
+- [I stole engine plans from MilMast & built it myself! K24Z3-A2 Head Swap](https://youtu.be/KXRSbNLFkr4)
+- [
